@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ikasady
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning coding on edx
+- 💞️ I’m looking to collaborate on any project that accepts newbyes
+- 📫 How to reach me: you can both contact me from email ( classroom8ano@gmail.com ) or from telegram ( +55 62 99452 7757 )
+- ⚡ Fun fact: dont have a lot about me, but i can be fun :)
